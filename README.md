@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+What was here probably isn't anymore.
+
+Profile image by Olivier de Wilde - Television - photomarathon, CC BY 2.0, https://commons.wikimedia.org/w/index.php?curid=39750631
